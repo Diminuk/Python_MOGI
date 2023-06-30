@@ -1,0 +1,1 @@
+2023/24/I félév BME MOGI Tanszék Python tárgy ~Monori János Bence, Wenesz Dominik
